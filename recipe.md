@@ -12,7 +12,7 @@ Now make your salsa. Peel and roughly chop the garlic, finely slice the scallion
 
 Peel the red onion and chop into the half-moon-shaped slices. Remove the avocado from its skin and chop into small bite-size pieces. Cut the chilli into thin strips - if you want it milder, remove the seeds first.
 
-# Now assemble your nacho bowl. Tip the crispy tortilla shapes in first, then pour over the refried beans. Now add the fun stuff - the nacho cheese (recipe on our youtube channel), avocado, onions and salsa (if you want the tortillas to remain crunchy serve the salsa on the side). Chop the fresh coriander finely and sprinkle on top with some black sesame seeds and the sliced red chilli. You can also serve this in individual bowls if it's not a sharing plate. Make sure everyone gets all the toppings! Serves 4 as a sharing plate and 2 as a dinner.
+Now assemble your nacho bowl. Tip the crispy tortilla shapes in first, then pour over the refried beans. Now add the fun stuff - the nacho cheese (recipe on our youtube channel), avocado, onions and salsa (if you want the tortillas to remain crunchy serve the salsa on the side). Chop the fresh coriander finely and sprinkle on top with some black sesame seeds and the sliced red chilli. You can also serve this in individual bowls if it's not a sharing plate. Make sure everyone gets all the toppings! Serves 4 as a sharing plate and 2 as a dinner.
 
 Ingredienten:
 6 wholewheat tortilla wraps
